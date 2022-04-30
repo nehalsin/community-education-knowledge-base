@@ -16,4 +16,5 @@ Our interactions are cordial in nature without any monetary exchanges.
 
 1. [Lakshmi Ashram,  Kausani](https://nehalsin.github.io/lakshmi-ashram-kausani/) 
 2. [Kafalfpc, Eiri Jhal, Gwaldam](https://nehalsin.github.io/kafalfpc-edu/)
+3. [Agastyamuni, Rudraprayag](https://nehalsin.github.io/agastyamuni-edu/)
 
